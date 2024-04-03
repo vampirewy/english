@@ -16,3 +16,5 @@
 14. **The eyes are the windows of soul** 眼睛是灵魂的窗户
 15. **Ledward studied me a moment, then went into the house** 这里的 study 有仔细观察的意思，watch 只是简单的看一下，并没有思考的意思，选自图书 Man Trip 中
 16. **for a song** 非常便宜的，非常廉价的 buy for a song 便宜地买下 / sell for a song 贱卖
+17. **Heat washed over my face** 我的脸红了 / 热浪冲刷了我的脸
+18. **All three of them were peeking over at us and whispering** peeking(瞥,偷看) over at us -- 偷偷看了我们一眼并且低头说话
