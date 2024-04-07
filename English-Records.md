@@ -18,3 +18,5 @@
 16. **for a song** 非常便宜的，非常廉价的 buy for a song 便宜地买下 / sell for a song 贱卖
 17. **Heat washed over my face** 我的脸红了 / 热浪冲刷了我的脸
 18. **All three of them were peeking over at us and whispering** peeking(瞥,偷看) over at us -- 偷偷看了我们一眼并且低头说话
+19. **Ledward parked his jeep,jumped out, and hurried to the screen door** the screen door 纱窗做的门
+20. **She gave Ledward a peck on his cheek** 她在 Ledward 脸颊上轻轻吻了一下, cheek --> 脸颊， peck --> 轻轻地吻
