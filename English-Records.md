@@ -20,3 +20,5 @@
 18. **All three of them were peeking over at us and whispering** peeking(瞥,偷看) over at us -- 偷偷看了我们一眼并且低头说话
 19. **Ledward parked his jeep,jumped out, and hurried to the screen door** the screen door 纱窗做的门
 20. **She gave Ledward a peck on his cheek** 她在 Ledward 脸颊上轻轻吻了一下, cheek --> 脸颊， peck --> 轻轻地吻
+21. **she threw her arms around him, waving the tickets** 她抱住他,挥舞着机票
+22. **Ledward hit the jackpot** Ledward 中了大奖
