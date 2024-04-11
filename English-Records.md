@@ -24,3 +24,4 @@
 22. **Ledward hit the jackpot** Ledward 中了大奖
 23. **Once upon a time** 很久以前
 24. **You just killing them for no reason** 杀他们不需要理由
+25. **That would be so totally awesome** 这他妈太酷了(太棒了)
