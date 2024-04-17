@@ -27,3 +27,6 @@
 25. **That would be so totally awesome** 这他妈太酷了(太棒了)
 26. **Take a break** have a rest 休息一下
 27. **I couldn't wait to tell my friends about it** 我等不及想告诉我的朋友们
+28. **Better head back** 最好回去
+29. **A while back** 前段时间
+30. **She wasn't mean** 她并不刻薄
