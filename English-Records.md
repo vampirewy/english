@@ -33,3 +33,4 @@
 31. **for a while** 暂时
 32. **in personal** 亲自 I want to meet you in person. 我想要亲自来见你
 33. **Boy, you can really feel the wind picking up** pick up --> 增强， 你能明显感受到风力加强了
+34. **To make matters worse** 更糟的是
