@@ -36,3 +36,6 @@
 34. **To make matters worse** 更糟的是
 35. **a couple of times** 好几次，若干次
 36. **cargo shorts pocket** 工装短裤口袋
+37. **Forgive and Forget** 既往不咎
+38. **Take care of this puddle** 处理这滩水 usual it means take care of somebody --> 照顾某人
+39. **I picked up my pace** 我加快了脚步, pick up --> 加快(速度)
