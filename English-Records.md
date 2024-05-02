@@ -39,3 +39,4 @@
 37. **Forgive and Forget** 既往不咎
 38. **Take care of this puddle** 处理这滩水 usual it means take care of somebody --> 照顾某人
 39. **I picked up my pace** 我加快了脚步, pick up --> 加快(速度)
+40. **A cop car** 一辆警车
