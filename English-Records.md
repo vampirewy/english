@@ -40,3 +40,4 @@
 38. **Take care of this puddle** 处理这滩水 usual it means take care of somebody --> 照顾某人
 39. **I picked up my pace** 我加快了脚步, pick up --> 加快(速度)
 40. **A cop car** 一辆警车
+41. **Thank you! Don't mention it** 谢谢，不客气.(mention --> 提起的意思) 可以不说 You're welcome.
