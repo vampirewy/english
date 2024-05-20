@@ -44,3 +44,6 @@
 42. **Right where the river emptied into the ocean** 就在河流在流入海洋的时候, empty into 流入、注入
 43. **over the moon** 欣喜若狂
 44. **Willy sat his knees up, his arms and head resting on them** Willy 双腿弯曲，膝盖朝上，手和头都放在膝盖上
+45. **medical kit** 急救包
+46. **off-duty** 下班的，不当班的 Off-duty police officer 下班的警官
+47. **you're my dearest** 你是我的最爱
