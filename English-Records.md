@@ -47,3 +47,8 @@
 45. **medical kit** 急救包
 46. **off-duty** 下班的，不当班的 Off-duty police officer 下班的警官
 47. **you're my dearest** 你是我的最爱
+48. **so far** 迄今为止
+49. **The rest of my life** 余生
+50. **Don't worry, i'll keep you update** 别担心，有消息，我会同步给你
+51. **Chinese takeout** 中式外卖， takeout --> 外卖
+52. **Up to you** 你决定
