@@ -52,3 +52,4 @@
 50. **Don't worry, i'll keep you update** 别担心，有消息，我会同步给你
 51. **Chinese takeout** 中式外卖， takeout --> 外卖
 52. **Up to you** 你决定
+53. **Nerve laugh at someone else's mistakes** 永远不要嘲笑别人犯的错误
