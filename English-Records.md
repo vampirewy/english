@@ -53,3 +53,4 @@
 51. **Chinese takeout** 中式外卖， takeout --> 外卖
 52. **Up to you** 你决定
 53. **Nerve laugh at someone else's mistakes** 永远不要嘲笑别人犯的错误
+54. **You grabbed my attention** 你引起了我的注意
