@@ -54,3 +54,4 @@
 52. **Up to you** 你决定
 53. **Nerve laugh at someone else's mistakes** 永远不要嘲笑别人犯的错误
 54. **You grabbed my attention** 你引起了我的注意
+55. **I'll beat you back to your old self!** 我要把你打回你原来的样子
